@@ -1,2 +1,2 @@
-# jordanliebe.github.io
+# Jordan Liebe
 My Homepage
